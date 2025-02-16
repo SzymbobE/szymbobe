@@ -1,4 +1,4 @@
-## Hi there 👋
+## jaja i dupa cyce
 
 <!--
 **SzymbobE/szymbobe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
